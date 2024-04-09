@@ -1,0 +1,1 @@
+# LaskaKit PD-IP2326 nabíječka 2-3S 1.5A
